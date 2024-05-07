@@ -22,9 +22,9 @@ Welcome to our GitHub! We specialize in over-the-top (OTT) content delivery solu
 
 ## 📫 How to reach me ...
 
-- Email: [contact@ottsupplier.tv](mailto:contact@ottsupplier.tv)
-- LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/ottsupplier)
-- Visit our website: [www.ottsupplier.tv](http://www.ottsupplier.tv)
+- Email: [support@ottsupplier.tv](mailto:support@ottsupplier.tv)
+- Youtube: [Youtube channel]([https://www.linkedin.com/in/ottsupplier](https://www.youtube.com/@ottsupplier-tv))
+- Visit our website: [www.ottsupplier.tv](https://www.ottsupplier.tv)
 
 ## 😄 Pronouns: He/They
 
