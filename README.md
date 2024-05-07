@@ -24,6 +24,7 @@ Welcome to our GitHub! We specialize in over-the-top (OTT) content delivery solu
 
 - Email: [support@ottsupplier.tv](mailto:support@ottsupplier.tv)
 - Youtube: [Youtube channel](https://www.youtube.com/@ottsupplier-tv)
+- Facebook: [Facebook Page](https://www.facebook.com/profile.php?id=61559545526587)
 - Visit our website: [www.ottsupplier.tv](https://www.ottsupplier.tv)
 
 ## 😄 Pronouns: He/They
